@@ -5,5 +5,5 @@
 
 # MrApollonka
 
-Мой супер пупер лютый <a href="https://youtube.com/@MrApollonych" target="_blank">юпуп</a> канал)
+Наш супер пупер лютый <a href="https://discord.com/invite/bg9rGzZFpz" target="_blank">дискорд</a> сервер)
 Вскоре буду делать вики для всех подобных проектов.
